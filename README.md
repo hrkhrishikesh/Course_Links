@@ -1,4 +1,4 @@
-![CoursePiracy](https://user-images.githubusercontent.com/76810020/119037918-75fc9b00-b9aa-11eb-9b53-d82b856c5bc6.png)
+
 <div align="center">
 </div>
 <div align="center">
